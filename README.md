@@ -15,3 +15,5 @@
 "Anti-social behavior is a trait of intelligence in a world full of conformists." Nikola Tesla
 
 "Be the change you want in the world" - Anonymous
+
+"Amogus" - Ethan
